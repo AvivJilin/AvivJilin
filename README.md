@@ -4,6 +4,4 @@
 
 📚 In addition to my technical pursuits, I hold a Bachelor's Degree in Political Science and Multidisciplinary Social Sciences from Emek Yizrael College. My passion for continuous learning drives me to explore new technologies and stay updated with the latest developments in the tech world.
 
-🌐 Besides coding, you'll find me exploring the beauty of languages, with fluency in Hebrew, Russian, and English. I believe that understanding diverse cultures enhances problem-solving and communication.
-
 📧 Feel free to reach out to me at aviv.jilin2@gmail.com or connect with me on LinkedIn. Let's collaborate and create amazing things together! 🚀
